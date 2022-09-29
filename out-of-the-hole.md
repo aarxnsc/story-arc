@@ -15,5 +15,5 @@ Mario gets bitten by a mushroom trying to save peach
 ## Chapter 4: princess peach and mario recover from mushroom bite
 
 
-## Chapter 5: Happily ever after
-They go to Japan together
+## Chapter 5: Happily ever after 
+swim in cancun all day.
